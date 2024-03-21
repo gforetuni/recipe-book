@@ -12,3 +12,4 @@
 ## Instructions
 
 - Mix all the ingredients and enjoy it with ice.
+- Add alcohol
